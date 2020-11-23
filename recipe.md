@@ -1,6 +1,6 @@
- 1. Heat oven to 375°F or  190°C. In small bowl, mix flour, baking soda and salt; set aside.
+ 1. Heat oven to 375°F or  190°C. In small bowl, mix flour, baking soda and salt; keep it aside.
  
-2. In large bowl, beat softened butter and sugars with electric mixer on medium speed, or mix with spoon about 1 minute or until fluffy, scraping side of bowl occasionally.
+2. In large bowl, beat softened butter and sugars with electric mixer on medium speed, or mix with spoon about 1 minute, scraping side of bowl occasionally.
 
 3. Beat in egg and vanilla until smooth. Stir in flour mixture just until blended (dough will be stiff). Stir in chocolate chips and nuts.
 
